@@ -1,2 +1,3 @@
-# TcScanTr
-Github tarafından kaldırıldı!
+#K4R4H4N 
+
+Kullanıma kapatılmıştır ! 
